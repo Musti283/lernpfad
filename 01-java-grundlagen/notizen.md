@@ -1,0 +1,1 @@
+01.11.2026 meine erste Übungsstunde mit Github.
